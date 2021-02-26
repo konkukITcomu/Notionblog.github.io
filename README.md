@@ -1,1 +1,0 @@
-# konkukITcomu.github.io
